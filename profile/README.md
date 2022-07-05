@@ -1,5 +1,5 @@
 # ApidWare - Free. Private. Transparent.
-### Devs at ApidWare say hii 👋
+### @ApidBoy from ApidWare says hii 👋
 **Become one of them now! and contribute to ApidWare.**
 ## About us - Introduction
 ## Q - 🧑‍💻 Who are we and what's our purpose?
